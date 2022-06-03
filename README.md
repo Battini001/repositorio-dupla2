@@ -1,6 +1,8 @@
 # repositorio-dupla2
 eu mudei aqui mano
 de Desu quiser, da certo essa krl
-aadqegrwgq3gqwrg
+aadqegrwgq3
 
-vou taca um texto aqui
+
+
+aqui vai rolar um txt
