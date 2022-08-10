@@ -6,3 +6,4 @@ aadqegrwgq3
 alterado
 
 aqui vai rolar um txt
+foda-se
