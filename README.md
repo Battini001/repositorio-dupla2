@@ -7,3 +7,4 @@ alterado
 
 aqui vai rolar um txt
 cara n modifica essa linha, eu to trabalhando nela
+ola galera hj venho falar como nao ser calvo
