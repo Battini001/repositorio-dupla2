@@ -6,4 +6,4 @@ aadqegrwgq3
 alterado
 
 aqui vai rolar um txt
-foda-se
+cara n modifica essa linha, eu to trabalhando nela
